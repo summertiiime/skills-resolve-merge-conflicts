@@ -1,1 +1,3 @@
-You can refer to the fact that I have verified my employment history on LinkedIn. For any further references that may be needed, please allow 24-48 hours and understand my references are all located in the Pacific Time Zone (California).
+# References
+
+* octocat 1 😈
